@@ -7,3 +7,6 @@ Thanks for using are mod
 
 The mod should look like this
 ![image](https://github.com/KuudraWest/KuudraFollowerQuest/assets/161499855/0a7fa91e-5158-4ecd-8c3a-87f17fcfee86)
+
+DOWNLOAD UPDATED VERSION 1.7.1 
+Thankyou Fellow Kuudra Grinders.
